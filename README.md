@@ -1,1 +1,0 @@
-# YorkieAndSchnauzer.github.io
